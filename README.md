@@ -1,2 +1,0 @@
-# Dalton Alighieri
-*Dalton Alighieri is an independent researcher and writer based in the United States who focuses on volcanic threats in the Americas and Asia-Pacific. He synthesizes global historical precedents with contemporary scientific findings and advocates for multidisciplinary, inter-organizational, and international risk assessment and mitigation. His work sits at the critical intersection of geohazard studies and public policy.*
