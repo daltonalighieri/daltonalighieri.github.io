@@ -2,6 +2,8 @@
 
 *Dalton Alighieri is a researcher and writer of topics in the fields of volcanology, geohazard studies, public policy, and more.*
 
+
 [daltonalighieri@gmail.com](mailto:daltonalighieri@gmail.com)
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/e/e0/Chihsingshan%2C_Tatun_volcanoes.jpg" alt="Chihsingshan" width="600">
+![17712082561773421754868229375396](https://github.com/user-attachments/assets/fce7dc39-6ebd-41e8-822d-25cf26b52fb1)
+
