@@ -1,6 +1,7 @@
-![17712082561773421754868229375396](https://github.com/user-attachments/assets/fce7dc39-6ebd-41e8-822d-25cf26b52fb1)
+![17715306852451281590990588218796](https://github.com/user-attachments/assets/db8796a1-1a36-4fc3-9b42-1c1eb4afa3a2)
 
-[Photograph Attribution](https://commons.wikimedia.org/wiki/File:Chihsingshan,_Tatun_volcanoes.jpg#mw-jump-to-license)
+
+Tatun Volcano Group [Photograph Attribution](https://commons.wikimedia.org/wiki/File:MountainDaTun.jpg#mw-jump-to-license)
 
 Dalton Alighieri is a researcher and writer of topics in the fields of volcanology, geohazard studies, public policy, and more.
 
