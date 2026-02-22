@@ -2,6 +2,6 @@
 
 *Tatun Volcano Group* [Photograph Attribution](https://commons.wikimedia.org/wiki/File:MountainDaTun.jpg#mw-jump-to-license)
 
-Dalton Alighieri is a researcher and writer of topics in the fields of volcanology, geohazard studies, public policy, and more. one of his forthcoming articles on the Tatun Volcano Group (TVG) will be published by *Taiwan Insight* (Taiwan Research Hub, University of Nottingham) in late February 2026.
+Dalton Alighieri is a researcher and writer of topics in the fields of volcanology, geohazard studies, public policy, and more. One of his forthcoming articles on the Tatun Volcano Group (TVG) will be published by *Taiwan Insight* (Taiwan Research Hub, University of Nottingham) in late February 2026.
 
 Contact: [daltonalighieri@gmail.com](mailto:daltonalighieri@gmail.com)
