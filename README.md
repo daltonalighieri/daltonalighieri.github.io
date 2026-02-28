@@ -2,8 +2,6 @@
 
 *Tatun Volcano Group* [Photograph Attribution](https://commons.wikimedia.org/wiki/File:MountainDaTun.jpg#mw-jump-to-license)
 
-Dalton Alighieri is a researcher and writer of topics in the fields of volcanology, geohazard studies, public policy, and more. His article, "Taipei's and New Taipei's Possible Volcanic Threats," concerning the Tatun Volcano Group (TVG) was published by *Taiwan Insight* (Taiwan Research Hub, University of Nottingham) on February 26, 2026.
-
-https://taiwaninsight.org/2026/02/26/taipeis-and-new-taipeis-possible-volcanic-threats/
+Dalton Alighieri is a researcher and writer of topics in the fields of volcanology, geohazard studies, public policy, and more. His article, ["Taipei's and New Taipei's Possible Volcanic Threats,"](https://taiwaninsight.org/2026/02/26/taipeis-and-new-taipeis-possible-volcanic-threats/) concerning the Tatun Volcano Group (TVG), was published by *Taiwan Insight* (Taiwan Research Hub, University of Nottingham) on February 26, 2026.
 
 Contact: [daltonalighieri@gmail.com](mailto:daltonalighieri@gmail.com)
